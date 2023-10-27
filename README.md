@@ -1,0 +1,6 @@
+# lenek-os.github.io
+Site tests for Bernardo
+
+THIS IS A SKILL TEST OF MINE. I WILL TRY TO MAKE
+A FAN BLOG OF THE COMICS "FLASH"
+THANKS FOR READING :D
